@@ -1,6 +1,5 @@
 •	👋 Hi, I’m Arun
 •	👀 I’m interested in Data Analytics and Process Improvement
-
 •	🌱 I’m currently an aspiring Data Analyst having pursued a career change from Accountancy 
 
 •	💞️ I’m looking to collaborate on projects with similar minded people to improve my analytical skills and to gain the experience and necessary skills to achieve a strong position to move into Data
