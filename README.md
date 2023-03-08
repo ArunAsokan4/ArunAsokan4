@@ -1,5 +1,4 @@
 •	👋 Hi, I’m Arun
-
 •	👀 I’m interested in Data Analytics and Process Improvement
 
 •	🌱 I’m currently an aspiring Data Analyst having pursued a career change from Accountancy 
